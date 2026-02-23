@@ -48,5 +48,5 @@ London, United Kingdom
 
 ## 📫 Contact
 
-Personal Email: yourpersonalemail@example.com  
+Personal Email: barrie_mohamedali@hotmail.com
 Website: https://sendhome.app
