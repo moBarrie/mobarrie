@@ -1,6 +1,6 @@
 # 🚀 Mohamed Ali Barrie
 
-**Founder @ SendHome | Fintech Builder | AI-Driven Developer | London 🇬🇧**
+**Founder @SendHome | Fintech Builder | AI-Driven Developer | London 🇬🇧**
 
 I build financial technology products that solve real-world money problems.
 
